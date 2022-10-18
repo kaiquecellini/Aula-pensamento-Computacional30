@@ -1,0 +1,1 @@
+# Aula-pensamento-Computacional30
